@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sukikimtae
 - 👀 I’m interested in ... Anything
-- 🌱 I’m currently learning ... Grade 9th
+- 🌱 I’m currently learning ... Grade 10th
 - 💞️ I’m looking to collaborate on ... Anything 
 - 📫 How to reach me ... idk?
 
