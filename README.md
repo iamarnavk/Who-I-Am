@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sukikimtae
+- 👋 Hi, I’m @iamarnavk
 - 👀 I’m interested in ... Anything
 - 🌱 I’m currently learning ... Grade 10th
 - 💞️ I’m looking to collaborate on ... Anything 
